@@ -1,0 +1,1 @@
+Transamissão manual de 6 velocidades
